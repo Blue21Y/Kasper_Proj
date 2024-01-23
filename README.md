@@ -1,1 +1,1 @@
-The design you see is not mine i just have done the coding part. :)
+The design you see is not mine i have just done the coding part. :)
